@@ -1,0 +1,1 @@
+In order to have your account deleted, please reach out to the study team with your email used to make the account at HELP.study@usask.ca. Requests are processed within 7 days and the data us irrecoverably removed.
